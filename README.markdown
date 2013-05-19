@@ -13,4 +13,4 @@ I hope you enjoin it. I'll be always updating this page with more information, s
 
 <p>Thank you!! <br>
 André Mayer (@Andre_Mayer) <br>
-Software </p> <br>
+Software Dev</p> <br>
