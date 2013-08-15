@@ -11,6 +11,6 @@ I hope you enjoin it. I'll be always updating this page with more information, s
 
 <h2></h2>
 
-<p>Thank you!! <br>
+<p>Thank you!!! <br>
 André Mayer (@Andre_Mayer) <br>
 Software Developer</p> <br>
