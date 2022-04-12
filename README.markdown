@@ -5,7 +5,7 @@ I hope you enjoin it. I'll be always updating this page with more information, s
 
 <h2></h2>
 
-<h3>SlideShare presentations</h3>
+<h3>SlideShare presentations:</h3>
 
 <p><a href="http://www.slideshare.net/andre_mayer">http://www.slideshare.net/andre_mayer</a></p>
 
